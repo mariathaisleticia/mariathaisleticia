@@ -1,5 +1,5 @@
-- 👋 maria, thais e leticia
-- 👀 16 anos
+- 👀maria, thais e leticia
+- ✨  16 anos
 - 🌱 colégio estadual presidente kennedy
 - 💞️ 2TIB
 
